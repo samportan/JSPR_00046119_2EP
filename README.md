@@ -1,1 +1,1 @@
-# JSPR_00046119_2EP
+https://trello.com/b/0zGf97aU/segundo-parcial-poo
